@@ -30,3 +30,8 @@ O projeto “AlertWave” é para todos nós. Se você mora nesta cidade, trabal
 Convidamos você a se inscrever na plataforma e a compartilhar com amigos e familiares. Vamos trabalhar juntos para construir uma cidade mais forte e resiliente, onde todos possamos nos sentir mais seguros. 
 
 Para mais informações e para se cadastrar, acesse nosso site [Ainda a definir](Ainda a definir) ou entre em contato conosco por meio do [Ainda a definir](Ainda a definir). Ajude-nos a espalhar a mensagem e a garantir que todos tenham acesso a essas informações cruciais. Juntos, podemos fazer a diferença.
+
+
+Apoie este projeto!
+
+QR Code 
